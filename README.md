@@ -8,4 +8,9 @@ Meu nome é Eduardo Amaral (MiticoLord)
 - ### Você pode entrar em contato comigo :mailbox:
 
 miticolord14@gmail.com
-@lmxerifebr
+
+📱Instagram: https://www.instagram.com/nj.eduwzx_/
+📹Tiktok:
+https://www.tiktok.com/@lmxerife
+📦🛒Link De Vendas De Achados Shopee:
+https://linktr.ee/ChinaImports_
