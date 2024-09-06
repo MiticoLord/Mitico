@@ -11,3 +11,5 @@ miticolord14@gmail.com
 
 📱Instagram: https://www.instagram.com/nj.eduwzx_/
 📦🛒Link De Vendas Achados Shopee: https://linktr.ee/ChinaImports_
+
+(https://tenor.com/pt-BR/view/goku-gif-26354369)
