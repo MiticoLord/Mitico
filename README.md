@@ -1,5 +1,5 @@
 # Mitico
-### Boas vindas ao meu perfil 👾🌪
+### Boas vindas ao meu perfil !!👾🌪
 Meu nome é Eduardo Amaral (MiticoLord)
 
 - Estou estudando na Alura
