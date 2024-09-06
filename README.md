@@ -9,4 +9,3 @@ Meu nome é Eduardo Amaral (MiticoLord)
 
 miticolord14@gmail.com
 @lmxerifebr
-![descrição do GIF](link GIF do Tenor)
