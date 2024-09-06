@@ -10,6 +10,4 @@ Meu nome é Eduardo Amaral (MiticoLord)
 miticolord14@gmail.com
 
 📱Instagram: https://www.instagram.com/nj.eduwzx_/
-📹Tiktok: 
-https://www.tiktok.com/@lmxerife
 📦🛒Link De Vendas Achados Shopee: https://linktr.ee/ChinaImports_
